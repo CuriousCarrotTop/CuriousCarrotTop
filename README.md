@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @CuriousCarrotTop
+- 👀 I’m interested in gaming, nature, animals, and learning new things
+- 🌱 I’m currently learning how to make digital art
